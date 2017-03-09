@@ -3,7 +3,6 @@
 
 > [GitHub](https://github.com/colorhaake)
 > [colorhaake@gmail.com](mailto:colorhaake@gmail.com)
-> +886-912-556-477
 
 ------
 
